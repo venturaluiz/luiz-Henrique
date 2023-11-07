@@ -13,4 +13,4 @@ quero fazer psicologia,curinaria ou fotografo
 gosto de ver filmes e serie e um pouco de desenho
 gosto de acordar por volta das 7:00 da manhã
 vou para humanas 
-gosto de todos os feriados mas o meu preferido é o NAtal e pascoa 
+gosto de todos os feriados mas o meu preferido é o Natal e pascoa.
